@@ -1,5 +1,6 @@
 # gleague/glag skinhub
-[my osu! profile](https://osu.ppy.sh/users/16468838)
+
+# [my osu profile](https://osu.ppy.sh/users/16468838)
 
 # these are my most popular/requested skins
 the skins i use on stream or upload to yt may differ slightly
