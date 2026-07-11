@@ -3,7 +3,7 @@
 # [my osu profile](https://osu.ppy.sh/users/16468838)
 
 # these are my most popular/requested skins
-the skins i use on stream or upload to yt may differ slightly
+the skins i use on twitch or upload to yt may differ slightly
 
 # I will upload more if I get more requests for a particular skin
 and yes i use the naked song select interface
