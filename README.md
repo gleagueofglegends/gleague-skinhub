@@ -1,7 +1,7 @@
 # gleague/glag skinhub
 
 # these are my most popular/requested skins
-I MAY BE USING A SLIGHT EDIT OF ANY SKINS UPLOADED HERE COMPARED TO YOUTUBE OR TWITCH
+the skins i use on stream or upload to yt may differ slightly
 
 # I will upload more if I get more requests for a particular skin
 
