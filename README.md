@@ -6,7 +6,7 @@
 the skins i use on twitch or upload to yt may differ slightly
 
 # I will upload more if I get more requests for a particular skin
-and yes i use the naked song select interface
+and yes i use the naked song select interface for some of my skins
 
 
 # [vv glag](https://www.mediafire.com/file/xq316kmd8g5080d/vv_glag.osk/file) | vv idke trail edit
