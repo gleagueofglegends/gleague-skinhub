@@ -15,5 +15,9 @@ and yes i use the naked song select interface
 # [rafis glag](https://www.mediafire.com/file/qtkqrj1kf8sz8on/rafis_glag.osk/file) | rafis triplestack edit
 <img width="1920" height="1080" alt="screenshot343" src="https://github.com/user-attachments/assets/b95e756b-0219-4904-b30e-0c8ee5e563ca" />
 
-# [monkoglagtest](https://www.mediafire.com/file/vscaaiquk7w5bta/monkoglagtest.osk/file) | rafis triplestack edit
+# [monkoglagtest](https://www.mediafire.com/file/vscaaiquk7w5bta/monkoglagtest.osk/file) | monkoglasstest edit
 <img width="1920" height="1080" alt="screenshot345" src="https://github.com/user-attachments/assets/70420492-e625-4d19-baff-210d4ade7f6a" />
+
+# [glidden](https://www.mediafire.com/file/l28m6i4psw4bptt/glidden.osk/file) | malis type skin
+<img width="1920" height="1080" alt="screenshot347" src="https://github.com/user-attachments/assets/913c831f-e47d-4d09-bd74-b6435337419c" />
+
